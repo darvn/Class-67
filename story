@@ -1,0 +1,1 @@
+A boy was watching over sheep as his shepherd duties. He was really bored watching these plain sheep, so he decided to pull a prank on the townsfolk. "Help!" he cried. "There's a huge wolf that's trying to eat our sheep!"
