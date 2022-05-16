@@ -1,1 +1,5 @@
 A boy was watching over sheep as his shepherd duties. He was really bored watching these plain sheep, so he decided to pull a prank on the townsfolk. "Help!" he cried. "There's a huge wolf that's trying to eat our sheep!"
+
+The townsfolk ran over as quick as they could to save the sheep. When they got there, they saw no wolf, just a grinning kid. "Haha, got you!" he laughed. The townsfolk, annoyed, went back to there houses. The next day, the boy got bored again. "Help!" he cried. "There's a huge wolf that's trying to eat our sheep!" The townsfolk once again ran up to the hill the boy watched the sheep on. Once again, there was no wolf, just a grinning boy. 
+
+On the third day, the boy was relaxing in the sun. He was thinking of pulling the prank again, but at that moment a huge wolf ran at one of the sheep. The boy frantically called to the townsfolk. "Help!" he cried. "There's a huge wolf that's trying to eat our sheep!" The townsfolk, 
